@@ -8,4 +8,5 @@
 
 在冒险故事中，奶龙和它的伙伴们一起经历各种奇妙的旅程。它虽然偶尔会胆小害怕，但在关键时刻，为了朋友总会鼓起勇气。它就像我们生活中的开心果，以它独特的可爱和纯真陪伴着我们，无论是在动画中还是在周边产品上，奶龙的身影出现，就会带来满满的欢乐和温馨，让我们的世界变得更加五彩斑斓。
 
-![25F179A1E79D87607A142FE0E967366A](C:\Users\LENOVO\Desktop\25F179A1E79D87607A142FE0E967366A.gif)
+![b_c8afc122eda443162572806e256f8fa9](https://github.com/user-attachments/assets/5ff710f4-15d0-40f9-b360-6c24341a6f69)
+![25F179A1E79D87607A142FE0E967366A](https://github.com/user-attachments/assets/349be1e5-831b-4d7c-b22e-bd2848f53051)
